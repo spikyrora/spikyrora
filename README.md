@@ -7,5 +7,5 @@ I'm a Concept Art student, currently attending THESIGN ACADEMY in Florence, Ital
 
 Photoshop based, gore lover, cat mom.
 
-## CONTATTI
+## CONTACTS
 @spikyrora on ig
